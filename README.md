@@ -2,7 +2,7 @@
 
 ![](https://a-static.mlcdn.com.br/450x450/quadro-personalidade-intp-mbti-tamanho-a3-com-molduraopcao-4-recantoastralsite/recantoastralsite/q4/e2de62169955174b6438ff341c933483.jpeg)
 
-<p> Bom, começando com a pergunta "o que é <strong>INTP</strong>?", o <strong>INTP</strong> nada mais nada menos é do que uma persinalidade que pertece a um grupo das 4 dentre as 16 personalidades que se denominam "analistas", e que suas 4 siglas tem um significado diferente.</p>
+<p> Bom, começando com a pergunta "o que é <strong>INTP</strong>?", o <strong>INTP</strong> nada mais nada menos é do que uma persinalidade que pertece a um grupo das 4 dentre as 16 personalidades que se denominam "analistas", suas 4 siglas tem um significado diferente.</p>
 <p>Bom agora irei explicar cada uma delas, lembrando que todas vem do inglês, começando com a leta <strong>"I"</strong> vem de <strong>"Introvert"</strong>, que significa <strong>''introvertido"</strong>, a letra <strong>"N"</strong> vem de <strong>"Intuition"</strong>, que significa <strong>"intuição"</strong>,
  a letra <strong>"T"</strong> vem de <strong>"Thinking"</strong> que pode ser traduzido como <strong>"pensante" ou "racionalista"</strong>, e a letra <strong>"P"</strong> vem de <strong>"Perceptive"</strong> que significa <strong>"perceptivo"</strong>.</p>
  
